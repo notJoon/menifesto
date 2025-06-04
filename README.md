@@ -6,7 +6,7 @@ I insist that things must exist not to function, but to create impact. They must
 
 Completion is not fixation but a moment in flow. Everything we create should be not a finished answer, but the starting point of new questions. Design is not the repetition of solutions prescribed by existing power structures, but a subversive act that redefins problems themselves.
 
-Form follows not function, but possibility. Every form is merely the present expression of the potential it contains. Therefore, I advocate for designing patterns of autonomous transformation rather than fixed forms that comply with market logic or state reg
+Form follows not function, but possibility. Every form is merely the present expression of the potential it contains. Therefore, we must design not fixed forms that conform to market logic or state regulation, but patterns of form that change autonomously.
 
 Boundaries exist not for separation but as contract points for connection. All boundaries must process permeability and enable dialogue between inside and outside. I reject the exclusion and monopolization created by artifical boundaries such as borders, property rights, and class divisions.
 
